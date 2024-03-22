@@ -7,7 +7,7 @@ Loom Recoding Link: Example 2(Declarative):
 https://www.loom.com/share/f1e5ad355eb44158800905d5a6ac9927?sid=95fd9a36-2e79-48be-bcc8-aa60a4dff2c1
 
 Loom Recoding Link: Learning Outcomes:
-
+https://www.loom.com/share/97ef6fb9866347358fedc7ed01285bab?sid=d83bd8a3-5640-4e03-b56c-4e8421f24474
 
 # Project Overview
 
