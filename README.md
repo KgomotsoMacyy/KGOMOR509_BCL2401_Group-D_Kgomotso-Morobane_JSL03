@@ -4,7 +4,7 @@ Loom Recording Link: Example 1(Imperative):
 https://www.loom.com/share/efdc5373577d4d71a4f62f4eba4c420e?sid=7bc466c1-15cd-4098-bba6-fcce9d3a62ce
 
 Loom Recoding Link: Example 2(Declarative):
-
+https://www.loom.com/share/f1e5ad355eb44158800905d5a6ac9927?sid=95fd9a36-2e79-48be-bcc8-aa60a4dff2c1
 
 Loom Recoding Link: Learning Outcomes:
 
